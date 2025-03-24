@@ -18,7 +18,7 @@ Dejar de dudar de mis capacidades y ser mas disciplinado organizando mi tiempo y
 
 Parte 2: Mi mapa interno
 
-🔥 Lo que me impulsa:  Quiero que mis conocimientos en desarrollo de software sirvan para crear soluciones que realmente impacten a las personas y quiero ser la mejor version de mí mismo mejorando constantemente mis habilidades
+🔥 Lo que me impulsa:  Quiero ser la mejor version de mí mismo mejorando constantemente mis habilidades. Por otro lado, mi familia es un pilar fundamental en mi vida. Ellos se han esforzado mucho para darme oportunidades, y quiero devolverles todo ese sacrificio brindándoles estabilidad, bienestar y la calidad de vida que merecen. Su apoyo es una gran motivación para seguir adelante y alcanzar mis metas.
 
 ⚠️ Lo que me detiene: inseguridad en entornos nuevos, procastinacion ya que me distraigo o pospongo tareas importantes
 
